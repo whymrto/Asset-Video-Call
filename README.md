@@ -28,8 +28,3 @@ https://raw.githubusercontent.com/haryandi/Asset-Video-Call/xxxxxx
 https://raw.githubusercontent.com/usernamemu/Asset-Video-Call/xxxxxxx
 
 
-
-file excelnya ada disini
-
-
-https://docs.google.com/spreadsheets/d/1i6995Uqo89FLAbtxm4cjbZyKMD9KrUK1x-oxjzghVCw/
